@@ -3,10 +3,10 @@ Reynolds’ Vater Jim war bei der Royal Canadian Mounted Police in Vancouver, wo
 
 ## Filmografie
 
-- 1993: Ordinary Magic (Ganesh)
-- 1994: Meine Welt zerbricht (My Name is Kate, Fernsehfilm)
-- 1995: Serving the Silence – The Margarethe Cammermeyer Story (Fernsehfilm)
-- 1996: Todesdiät – Der Preis der Schönheit (When Friendship Kills, Fernsehfilm
-- 1996: Sabrina und die Zauberhexen (Sabrina the Teenage Witch, Fernsehfilm
-- 1997: Alarm-Profis (Life During Wartime)
-- 1997: Outer Limits – Genetische Botschaft
+* 1993: Ordinary Magic (Ganesh)
+* 1994: Meine Welt zerbricht (My Name is Kate, Fernsehfilm)
+* 1995: Serving the Silence – The Margarethe Cammermeyer Story (Fernsehfilm)
+* 1996: Todesdiät – Der Preis der Schönheit (When Friendship Kills, Fernsehfilm
+* 1996: Sabrina und die Zauberhexen (Sabrina the Teenage Witch, Fernsehfilm
+* 1997: Alarm-Profis (Life During Wartime)
+* 1997: Outer Limits – Genetische Botschaft
