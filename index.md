@@ -10,6 +10,3 @@ Reynolds’ Vater Jim war bei der Royal Canadian Mounted Police in Vancouver, wo
 * 1996: Sabrina und die Zauberhexen (Sabrina the Teenage Witch, Fernsehfilm
 * 1997: Alarm-Profis (Life During Wartime)
 * 1997: Outer Limits – Genetische Botschaft
-
-Best quote:
-> Any kind of crisis can be good. It wakes you up.
