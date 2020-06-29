@@ -10,3 +10,9 @@ Reynolds’ Vater Jim war bei der Royal Canadian Mounted Police in Vancouver, wo
 * 1996: Sabrina und die Zauberhexen (Sabrina the Teenage Witch, Fernsehfilm
 * 1997: Alarm-Profis (Life During Wartime)
 * 1997: Outer Limits – Genetische Botschaft
+
+Best quote:
+> Any kind of crisis can be good. It wakes you up!
+
+![IMAGE Ryan](https://upload.wikimedia.org/wikipedia/commons/thumb/1/14/Deadpool_2_Japan_Premiere_Red_Carpet_Ryan_Reynolds_%28cropped%29.jpg/1280px-Deadpool_2_Japan_Premiere_Red_Carpet_Ryan_Reynolds_%28cropped%29.jpg)
+Von Dick Thomas Johnson from Tokyo, Japan - Deadpool 2 Japan Premiere Red Carpet: Ryan Reynolds, [CC BY 2.0](https://commons.wikimedia.org/w/index.php?curid=70554183)
