@@ -12,4 +12,4 @@ Reynolds’ Vater Jim war bei der Royal Canadian Mounted Police in Vancouver, wo
 * 1997: Outer Limits – Genetische Botschaft
 
 Best quote:
-> Any kind of crisis can be good. It wakes you up.
+> Any kind of crisis can be good. It wakes you up!
